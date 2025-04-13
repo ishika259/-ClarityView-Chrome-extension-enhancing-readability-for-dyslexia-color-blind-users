@@ -1,0 +1,1 @@
+# -ClarityView-Chrome-extension-enhancing-readability-for-dyslexia-color-blind-users
